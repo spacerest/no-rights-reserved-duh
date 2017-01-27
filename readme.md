@@ -85,3 +85,13 @@ Wǒ shì yīgè nǚhái
 3 can i make it any more obvious
 我可以使它更明显吗？
 Wǒ kěyǐ shǐ tā gèng míngxiǎn ma?
+
+
+------
+Ren, Chris
+
+1:45 PM
+
+So, for the translation I guess we can make some improvement. For example: 1. It is fun to make music. 做音乐是一种乐趣。2. You are manipulationg time. 我正在操纵时间。3. Robots without hands。没有手的机器人。4. Robots without bodies. 没有身体的机器人。5. Really old gost robots. 非常老的幽灵机器人。6. He was a boy. 他曾经是个男孩。7. I was a girl. 我曾经是个女孩。
+
+We saved this conversation in the Conversations tab in Lync and in the Conversation History folder in Outlook.
